@@ -6,5 +6,3 @@
 - Good TAs
 - Interesting vibe
 - Its nothin crazy
-
-- 
